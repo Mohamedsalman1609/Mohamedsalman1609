@@ -1,7 +1,7 @@
 ✓Hi I'm Mohammad salman 
 ✓I have intrest in Artificial intelligence 
 ✓I’m currently learning about generative ai
-✓insta id -_salman_x_
+✓insta id -_salman_x__
 ✓❤️
 
 <!---
